@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @harryevans1997
-- 👀 I’m interested in playing games with friends, learning new things (especially programming) and playing piano.
+- 👀 I’m interested in playing games with friends, learning new things (especially programming), travelling and playing piano.
 - 🌱 I recently finished studying Physics at University 
 - 📫 You can reach me at harryevans177@gmail.com
 
