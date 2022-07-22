@@ -3,7 +3,7 @@
    - Badminton && Rock climbing
    - Learning new things (especially programming)
    - Travelling and experiencing new cultures
-   - Learning the piano
+   - Playing the piano
    - Playing games with friends~ D&D || Chess || Mario Party ...
 - 🌱 I studied Physics at Nottingham Trent University and am looking to start my career in tech!
 - 📫 You can reach me at harryevans177@gmail.com
